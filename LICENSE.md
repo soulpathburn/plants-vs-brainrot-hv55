@@ -1,4 +1,4 @@
-#  
+#  hidden plants vs brainrots Scripts offers the most advanced plants vs brainrots Script, with custom skins and no clip. Perfect for dominating any
 
 
 
